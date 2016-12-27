@@ -15,7 +15,7 @@ _Yields_: 16-24oz of juice
 _Instructions_:
 
 * Cut carrots, celery, and cucumber into thin 2" slices
-* Cut apply into chunks.
+* Cut apple into chunks.
 * Set pulp control lever to desired setting.
 * Juice all ingredients in the juicer. Open juice cap to allow juice to flow into your glass.
 
