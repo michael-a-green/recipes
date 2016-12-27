@@ -6,7 +6,7 @@
 
 
 _Equipment_: 
-* Hurom Premium Slow Juice or similar device.
+* Hurom Premium Slow Juicer or similar device.
 * Large enough glass or several glasses to hold juice.
 * If you don't want much or any pulp, will need another container into which device can expel pulp.
 
